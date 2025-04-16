@@ -53,10 +53,13 @@ Blinkit has achieved strong overall sales, crossing the $1 million mark
 
 There's a growing consumer preference for low-fat products, reflecting health-conscious trends
 
+
 Fruits, vegetables, and snacks are the top-performing categories
 
 Medium-sized outlets in Tier 3 cities deliver the highest profitability
 
 Supermarkets lead in sales volume, whereas grocery stores offer greater item visibility
+
+https://nitjacin-my.sharepoint.com/:u:/g/personal/khushi_bt_21_nitj_ac_in/EQBN5g7pGhJDkvPnU0JYwAgBBjbAc5WkxucSlIVJc-u2sQ?e=j0RKbo
 
 
